@@ -1,0 +1,2 @@
+# speci-ln-lampa
+Terka
